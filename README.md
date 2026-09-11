@@ -30,4 +30,4 @@ Author
 
 Triza Njenga LinkedIn
 
-Networkwalks Cybersecurity Program — Week
+Networkwalks Cybersecurity Program — Week 1
